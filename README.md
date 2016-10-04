@@ -1,4 +1,4 @@
 # HelloWorld
-#hellodarknessmyoldfrie- 
-#youarntmyfriend
-#T^T
+#bing
+#bing
+#bong
